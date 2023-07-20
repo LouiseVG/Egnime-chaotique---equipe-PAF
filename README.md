@@ -1,3 +1,3 @@
-Cliquer sur View Code puis
+Cliquez sur View Code puis
 écoutez les pistes audio et
-tirez-en les bonnes conclusions 
+tirez-en les bonnes conclusions !
